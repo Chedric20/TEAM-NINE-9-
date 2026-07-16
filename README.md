@@ -1,4 +1,4 @@
 # TEAM-9
-Vivas, Michelle G.
+Vivas Michelle G -
 Bascuguin, Chedric
-Rubia, Jenny
+- Rubia Jenny
